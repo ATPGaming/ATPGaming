@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ATPGaming
+- 👀 I’m interested in People Playground
+- 🌱 I’m currently learning colors with Among Us
+- 💞️ I’m looking to collaborate on killing Hank
+- 📫 How to reach me: ATP Gaming#2570 on Discord
