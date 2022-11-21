@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ATPGaming
-- 👀 I’m interested in men
+- 👀 I’m interested in men (wait, I don't think you're supposed to put your sexuality here)
 - 🌱 I’m currently learning to use Godot... someday
 - 💞️ I’m looking to collaborate on killing Hank
 - 📫 How to reach me: You can't lol
