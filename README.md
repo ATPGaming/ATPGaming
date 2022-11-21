@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ATPGaming
-- 👀 I’m interested in People Playground
-- 🌱 I’m currently learning colors with Among Us
+- 👀 I’m interested in men
+- 🌱 I’m currently learning to use Godot... someday
 - 💞️ I’m looking to collaborate on killing Hank
-- 📫 How to reach me: on Github
+- 📫 How to reach me: You can't lol
